@@ -1,5 +1,5 @@
 
-<img src="lion-king.png" style="border-radius:12px;margin-top:20px">
+<img src="lion-king.png" style="border-radius:12px;margin-top:20px;width:100%">
 
 ### MBIS Kahu Manu Film Studies 2025
 
