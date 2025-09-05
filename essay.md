@@ -15,6 +15,8 @@ The Lion King also shows symbolism when Simba is growing up with Pumbaa & Timon 
 
 In The Lion King, the Circle of Life also represents the balance between good and evil. When Mufasa is king, the Pride Lands are green, bright, and full of life, showing how to keep the land healthy. But when Scar takes over, the land becomes dry, dark, and unhealthy, symbolizing how evil destroys the normal theme.
 
+Over the years, The Lion King still remains one of the greatest animated films worldwide, and the newer versions have also been very successful.
+
 ### Fun Facts!
 - The Lion King was originally going to be called "The King of the Jungle"
 - The "Wildebeest Stampede" took 3 years to create and the result is **only three minutes long**
